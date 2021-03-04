@@ -1,1 +1,2 @@
-# rsschool-cv
+# rsschool-
+https://github.com/sinceremargarita
